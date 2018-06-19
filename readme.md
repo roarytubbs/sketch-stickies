@@ -8,5 +8,6 @@ It’s super easy to use just add the base Post It symbol and customize it from 
 If you’d like to download the free Marker Felt font visit https://www.1001freefonts.com/marker-felt.font.
 
 ### Connect
-@roary_tubbs
-roarytubbs.com
+Twitter - @roary_tubbs
+
+http://roarytubbs.com
